@@ -1,3 +1,3 @@
 # Tool-Create-App-VN
-# Credit: Hàháhahàha
+# Credit: Hàháhahàha Studio (PoG)
 # Discord: https://discord.gg/26psjAtG9S
